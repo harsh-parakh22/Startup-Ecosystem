@@ -1,1 +1,1 @@
-Please read the pdf to get full info. of the project
+Please read the pdf report to get full info. of the project
